@@ -28,7 +28,7 @@
 
 ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
 
-🎵[sαsαkմɾҽ](https://github.com/DoctorFunkbeat)
+🎵[lҽαժíα](https://github.com/DoctorFunkbeat)
 
 〰︎ heya!! I’m really glad we started talking more because I think you’re such a kind person, please never think I dislike you! you have a special place in my heart as well and I hope we see more of each other in the future
 
